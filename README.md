@@ -7,3 +7,5 @@ if ur also an octopus and want to play splatoon together then INTERACTIONS ARE V
 even if ur not an octopus, still feel free to int as well !!!
 
 ![polygonwave2](https://github.com/user-attachments/assets/8e378bc1-ca82-41da-a67b-9b2d91bc175d) ![moitie](https://github.com/user-attachments/assets/e726d4b2-b93c-4df1-85c3-9219430ffde9) ![tumblr_45f3cde33ffe35942af473aa22137b0c_dcaa9410_250](https://github.com/user-attachments/assets/e489f606-d978-43e5-9095-8e5cccb7f671)
+
+i don't have dni but i block **freely**
