@@ -7,6 +7,7 @@ if ur also an octopus and want to play splatoon together then INTERACTIONS ARE V
 ![tumblr_5e6dca1cc404eeb107491622a582e27f_89523005_250](https://github.com/user-attachments/assets/5f2ba4b3-f558-4b96-a72a-0eb563b5b6c1)
 
 
-even if ur not an octopus still feel free to int as well 
+even if ur not an octopus still feel free to int as well 🤹‍♂️
+
 
 i don't have dni but i block based on vibes, feel free to do the same
