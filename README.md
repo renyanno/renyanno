@@ -20,8 +20,6 @@ yyeaaahhhh that's it
 
  ![durr-durr-emoji](https://github.com/user-attachments/assets/76166828-118e-4eae-998d-9068f5dc8d06)
 
-FREEAAAAAAAAK ITTTTTTTTTTTTTTTTTTTT i luv kim petras
-
 
 
 ![umazing-gif](https://github.com/user-attachments/assets/c8c6eb36-e900-4c41-8cfd-5c30ac37ec3f)
